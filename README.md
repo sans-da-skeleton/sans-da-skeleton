@@ -6,6 +6,6 @@ $\color{#FFFFFF}{\textsf{sans.}}$ <br>
 <img src="https://files.catbox.moe/emi4tw.gif" width="150" height="~"/><br>
 <sup>$\color{#FFFFFF}{\textsf{he/himㅤ+ㅤmasc terms}}$</sup> <br>
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[♡](https://github.com/miss-dreemurr)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[♡](https://github.com/miss-dreemurr)
 ㅤ<br>
 </p>
