@@ -7,6 +7,6 @@ $\color{#FFFFFF}{\textsf{sans}}$ <br>
 $\color{#FFFFFF}{\textsf{he/himㅤ+ㅤmasc terms}}$ <br>
 $\color{#FFFFFF}{\textsf{alt/nomination account}}$ <br>
   
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[♡](https://github.com/miss-dreemurr)<br>
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[♡](https://github.com/miss-dreemurr)ㅤㅤㅤㅤㅤ<br>
 ㅤ<br>
 </p>
