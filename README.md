@@ -8,6 +8,6 @@ $\color{#FFFFFF}{\textsf{he/himㅤ+ㅤmasc terms}}$ <br>
 $\color{#FFFFFF}{\textsf{alt/nomination account}}$ <br>
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤ [atabook](https://snowdin.atabook.org)ㅤㅤㅤㅤㅤ<br>
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[♡](https://github.com/miss-dreemurr)ㅤㅤㅤㅤㅤ<br>
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ [♡](https://github.com/miss-dreemurr)ㅤㅤㅤㅤㅤ<br>
 ㅤ<br>
 </p>
